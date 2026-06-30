@@ -304,10 +304,8 @@ University of East London
 
 📧 Email: yagnanlr@gmail.com
 
-GitHub: https://github.com/yourusername
-
-LinkedIn: https://linkedin.com/in/yourprofile
-
+LinkedIn:
+https://www.linkedin.com/in/yagna-prasanna-kumar-yalamarthi-90b69b222?utm_source=share_via&utm_content=profile&utm_medium=member_android
 ---
 
 
